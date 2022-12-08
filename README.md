@@ -1,2 +1,6 @@
 # lab9
-Pogczampik
+Pogczampik.
+Ciekway ten github
+taki mega nudny
+no no
+
