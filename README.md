@@ -1,4 +1,4 @@
-# lab9
+# lab
 Pogczampik.
 Ciekway ten github
 taki mega nudny
